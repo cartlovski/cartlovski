@@ -4,4 +4,4 @@
 <p align="center"> $\color{#D98A99}{\text{c + hㅤencouraged !}}$ </p>
 <p align="center"> $\color{#DE9398}{\text{w2iㅤunlessㅤfriend}}$ </p>
 <p align="center"> $\color{#E39C98}{\text{sociallyㅤawkward}}$ </p>
-<div align="center"><a href="https://ditf.atabook.org/"><img width="140" height="80" src="https://meawsource.carrd.co/assets/images/image01.png?v=939df97a"></a> <a href="https://pronouns.cc/@butterstotch"><img width="140" height="80" src="https://meawsource.carrd.co/assets/images/image02.png?v=ca1cd0a8"></a></div>
+<div align="center"><a href="https://ditf.atabook.org/"><img width="140" height="80" src="https://meawsource.carrd.co/assets/images/image01.png?v=939df97a"></a> <a href="https://pronouns.cc/@butterstotch"><img width="140" height="80" src="https://meawsource.carrd.co/assets/images/image02.png?v=ca1cd0a8"></a> <a href="https://cartmann.straw.page"><img width="140" height="80" src="https://meawsource.carrd.co/assets/images/image18.png?v=db56e8c5"></a></div>
